@@ -4,4 +4,4 @@
 raise software development capacity. I can work under high pressure and read technical documentation. One of
 my strongest points is adaptability, I am ready to learn new things in such a short period of time
 - Email phamtandat.itnlu@gmail.com
-- Phone 0333969790
+
